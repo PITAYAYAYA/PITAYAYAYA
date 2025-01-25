@@ -8,4 +8,5 @@
 <br/>🌙 ⋅ Offtab, whisper or else I might miss your messages.
 <br/>⛔ ⋅ Not available, probably out doing something.
 <br/>🎭 ⋅ (rarely used) Available for RP.
-<br/>💬 ⋅ (rarely used) Looking for a chat.</p>
+<br/>💬 ⋅ (rarely used) Looking for a chat.<br/>
+<br/>Please leave a message/drawing on my Strawpage, I like to see them !!</p>
